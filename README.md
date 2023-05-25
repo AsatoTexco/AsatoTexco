@@ -26,13 +26,3 @@
 </div> 
 
 
-
-
-
-
-
-
-LINK YOUTUBE =====  
-
-
-https://www.youtube.com/watch?v=TsaLQAetPLU
